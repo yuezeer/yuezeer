@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gou Ziyang
+- 👋 Hi, I’m layne, I’m from China
 - 👀 I’m interested in soccer and music
 - 🌱 I’m currently learning something about EAP of cim
 - 💞️ I’m looking to collaborate on ...
